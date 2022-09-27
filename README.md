@@ -1,0 +1,5 @@
+- hi ! im moon
+- prsk addict, kagamine stan
+- any prns, aroace demigirl
+- minor, isfj 9 mel-phleg
+- bye !
